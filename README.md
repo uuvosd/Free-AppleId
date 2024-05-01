@@ -4,7 +4,8 @@
 
 > 此教程为了是让大家学习，切勿做违法犯罪的事哦！
 
-TG群：[xiaohuojian9](https://t.me/xiaohuojian9)（进群不定期更新免费订阅节点，求稳还是请看<a href="#付费机场">付费机场</a>）
+TG群：[xiaohuojian9](https://t.me/+RklrPH8uXS83OTlh) 发送/start 机器人自动发送账号信息
+（进群不定期更新免费订阅节点，求稳还是请看<a href="#付费机场">付费机场</a>）
 
 
 
